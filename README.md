@@ -1,1 +1,0 @@
-# SINGHOT.github.io
